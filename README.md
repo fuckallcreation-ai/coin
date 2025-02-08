@@ -1,1 +1,1 @@
-Can we relaunched Bitcoin again?
+Can we relaunched Bitcoin again from the beginning?
